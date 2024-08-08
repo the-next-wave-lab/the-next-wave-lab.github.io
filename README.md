@@ -1,1 +1,1 @@
-# nextwave.github.io
+The Next Wave Company
