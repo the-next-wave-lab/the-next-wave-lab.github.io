@@ -1,1 +1,1 @@
-The Next Wave Company
+The Next Wave Lab
